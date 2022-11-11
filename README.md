@@ -1,0 +1,1 @@
+Practica de Fotos con camara Polaroid
